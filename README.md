@@ -1,4 +1,4 @@
-<h2 align="center">Man how must suck to be you, no matter what you try IQ goes down xD here we have "private" latest release of skidded tools + web builder in second repo...<br>When someone is not the brightest in batch like you not even 10 hackforum clones would help<br><br>Happy skidding ;)<br><br>PS.Birdbrain not even porly modded darks can help you, you are lost cause lol<br><br>PSS.For bit more experienced ones, you will figure out instant reason and purpose of addon files<br><br>ᚷᚱᛁᛗ ᚱᛖᚨᛈᛖᚱ </SkidMofoScammer hunter></h2>
+<h2 align="center">Idk what does it take for individuals to realize how big failure they are and waste of resources. Also how can they forget how are "brave indivuals" who attack and steal only from weaker called ^^<br>Here we have classic lowlife case of stealing some kid developer unprotected code, backdooring it and desparately attempt to scam some more money i guess because he heard when the fat lady started to sing... Both sln and compiled along with required files is in repo<br><br>Happy skidding ;)<br><br>PS.Birdbrain not even porly modded darks can help you, you are lost cause lol<br><br>PSS.For bit more experienced ones, you will figure out instant reason and purpose of addon files<br><br>ᚷᚱᛁᛗ ᚱᛖᚨᛈᛖᚱ </SkidMofoScammer hunter></h2>
 
 ###
 
@@ -9,7 +9,7 @@
 <br clear="both">
 
 <div align="center">
-  <img height="500" src="https://i.ibb.co/m9gTdL7/Screenshot-1.png"  />
+  <img height="400" src="https://i.ibb.co/Sdf9vYr/photo-2022-11-18-05-21-59.jpg"  />
 </div>
 
 ###
@@ -17,7 +17,7 @@
 <br clear="both">
 
 <div align="center">
-  <img height="500" src="https://i.ibb.co/JmKZx7C/Screenshot-2.png"  />
+  <img height="500" src="https://i.ibb.co/mRJvTKQ/photo-2022-11-18-05-26-01.jpg"  />
 </div>
 
 ###
@@ -25,33 +25,7 @@
 <br clear="both">
 
 <div align="center">
-  <img height="500" src="https://i.ibb.co/tHpKrr9/Screenshot-3.png"  />
-</div>
-
-###
-
-
-<br clear="both">
-
-<div align="center">
-  <img height="500" src="https://i.ibb.co/tHpKrr9/Screenshot-4.png"  />
-</div>
-
-###
-
-<br clear="both">
-
-<div align="center">
-  <img height="500" src="https://i.ibb.co/6wQLR9V/Screenshot-5.png"  />
-</div>
-
-###
-
-
-<br clear="both">
-
-<div align="center">
-  <img height="500" src="https://i.ibb.co/VjdJc4J/Screenshot-6.png"  />
+  <img height="500" src="https://i.ibb.co/bRLBs1P/photo-2022-11-18-05-27-21.jpg"  />
 </div>
 
 ###
